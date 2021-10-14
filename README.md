@@ -14,3 +14,9 @@ It can also be said of him that the determination that so many political achieve
 An inescapable figure on the Iberian Peninsula at the end of the 200s and the beginning of the 300s, D. Denis was called Pai-da-Pátria by Duarte Nunes de Leão.
 
 ## Body
+
+Little or nothing was known about the physique of King D. Denis. Contemporary sources as well as later authors fail to offer any kind of physical description of the monarch. The information available today comes from an accidental opening of the tomb of D. Denis during a restoration process in 1938.
+
+It is known that the historical figure of D. Denis was about 1.65 m tall. The monarch died at the age of 63, a remarkable feat for the time. He enjoyed excellent health throughout his life: he only made his first complete will at the age of 61, always traveled, participated in wars, being already in his late years, and at 60 he was still hunting. This assumption is confirmed by analysis of his remains which reveals that he died with his dentures complete.
+
+A distinctive feature of D. Denis's physiognomy would have been his red hair and beard. A curious fact in the Portuguese royal family at the time, of which no other examples are known until the time of D. Denis. One can speculate that the genetic origin of this trait could come from the mother's side, as her uncle Fernando de Castilla was red (in addition to receiving the epithet of La Cerda). The most plausible hypotheses are that these two peninsular princes have inherited the trait of Henry II of England, father of Leonor Plantagenet, great-grandmother of Alfonso X; or else from the mother of Afonso X, Beatriz da Swabia, granddaughter of the famous Emperor Frederico, Redbeard.
